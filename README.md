@@ -1,4 +1,5 @@
 ### Senior year of HTSH 👋
+![ASCII train - Imgur](https://github.com/user-attachments/assets/c342d8a3-c032-48f8-aa44-9ac85afb4e81)
 
 <!--
 **YSW0630/YSW0630** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
