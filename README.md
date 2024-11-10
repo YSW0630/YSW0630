@@ -4,7 +4,7 @@
 
 #### 🐸 What's the frog?
 
-The frog on my avatar is *Ceratophrys cornuta*, its English common name is *Surinam Hormed Frog*.
+The frog in my avatar is a *Ceratophrys cornuta*, its English common name is *Surinam Horned Frog*.
 
 #### 🌱 What are the characteristics of Surinam Hormed Frog?
 
