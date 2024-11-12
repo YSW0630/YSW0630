@@ -8,7 +8,7 @@ The frog in my avatar is a *Ceratophrys cornuta*, its English common name is *Su
 
 #### 🌱 What are the characteristics of Surinam Hormed Frog?
 
-They have the **sharpest** and **longest** horns among horned frogs, and their all-black throat is the main distinguishing feature. In addition, they have **butterfly-like patterns** on the center of their backs.
+Well, they have the **sharpest** and **longest** horns among horned frogs, and their all-black throat is the main distinguishing feature. In addition, they have **butterfly-like patterns** on the center of their backs.
 
 #### 🤯 Do you want to know more about it?
 
